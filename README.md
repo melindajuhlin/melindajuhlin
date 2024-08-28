@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @melindajuhlin
+- 👀 I’m interested in Physical Chemistry (a theoretical one).
+- 🌱 I’m currently learning Theoretical Computational Chemistry.
+- 📫 How to reach me melindajuhlin@gmail.com
+- ⚡ Fun fact: My left arm is covered in Harry Potter tattoos.
